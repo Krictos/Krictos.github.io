@@ -1,1 +1,0 @@
-# Krictos.github.io
